@@ -1,6 +1,5 @@
-Meme Project 
+Hola!! We are the Binary Beasts!!!
 
-Team Name : Binary Beasts
-
-Members:
+Presenting you the memes by our Members:
 Akshay Bakshi 
+Nikhil Sharma
